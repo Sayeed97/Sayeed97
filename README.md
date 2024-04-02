@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Sayeed Anwar
-- 👀 I’m interested in Electrical and Computer related technologies
+- 👀 I’m interested in technology and business
 - 🌱 I have a Master's degree in Electrical Engineering
 - 📫 Email: Sayeedanwar1997@gmail.com
 - 💻 Linkedin: https://www.linkedin.com/in/sayeed-anwar97/
